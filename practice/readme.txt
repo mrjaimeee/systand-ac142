@@ -1,3 +1,3 @@
 Jaime Rudy Miranda
 Christian Philipp Naidas
-Ryan Christian del Rosario
+Ryan Christian del Rosario malande
